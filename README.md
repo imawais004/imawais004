@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imawais004
-- 👀 I’m interested in Mangas and Mnahuas
-- 🌱 I’m currently learning about DevOps
+- 👀 I’m interested in learning new stuff, whatever it maybe
+- 🌱 I’m currently learning DevOps
 - 💞️ I’m looking to collaborate on anything that I can do.
 - 📫 How to reach me linkedin/in/awaisd
 
